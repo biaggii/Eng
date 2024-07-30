@@ -16,7 +16,7 @@
     - stood up to 挺身而出,硬剛
 
 168. To be successful, you need to be on top of your game.
-     - 
+     - To be successful, you need打 b樣 top皮F your game.
 
 Ever since the idea sparked, she has had a bee in her bonnet about travel. 
 - Ever since theyidea sparked, she yazada beeyiner bonnedabou travel. 

@@ -3,7 +3,8 @@ going to, gonna 要去，將要
 want to, wanna 想要，想要
 used to 習慣, I used to 我曾經, I'm used to 我已經習慣了
 ever 曾經, even 甚至
-# 中级英文听力 - 美国英语老师带你沉浸式训练（熟悉发音、生词、句型、表达）
+# [ 中级英文听力 - 美国英语老师带你沉浸式训练（熟悉发音、生词、句型、表达）](https://www.youtube.com/watch?v=3pxBVVOy6bM)
+![Video](./videos/)
 1. Why do you insist on being right all the time. (insist on doing sth 堅持做某)
 2. I don't remember anything. I must have passed out.我什麼都不記得了。我-定是昏過去了。
 3. Are you still planning to have children?
